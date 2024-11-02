@@ -52,8 +52,7 @@ I am passionate about contributing to high-impact projects and continuously impr
 Feel free to reach out if you’re interested in collaborating, discussing new opportunities, or sharing knowledge!
 
 - **Email**: [helal.shaban@outlook.com](mailto:helal.shaban@outlook.com)
-- **LinkedIn**: [linkedin.com/in/your-link](https://linkedin.com/in/your-link)
-- **GitHub**: [github.com/yourusername](https://github.com/yourusername)
+- **LinkedIn**: [linkedin.com/in/helalshaaban/](https://linkedin.com/in/helalshaaban/)
 
 ## 🌐 Let’s Connect
 
